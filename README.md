@@ -17,13 +17,13 @@
 ![ezgif-6b0e4f0343cd00](https://github.com/user-attachments/assets/3af9f364-7257-46a1-b32e-adf68027e341)
 
                                                                          hihi pls scroll to see
-			₊˚ପ⊹ I LOVE MY POOKIES!!! MIHO , JAY , SOL , KILLER , STANLY , CONNOR , SNOW , JIEJIE, ROUVE, MY WIFE, REN, HUANG, NIGHT, SHIKA, CASS, STELLA, AND SO MORE!!! LOVE U GUYS!!
+			₊˚ପ⊹ I LOVE MY POOKIES!!! MIHO , JAY , SOL , LIAM , KILLER , STANLY , CONNOR , SNOW , JIEJIE, ROUVE, MY WIFE, REN, HUANG, NIGHT, SHIKA, CASS, STELLA, AND SO MORE!!! LOVE U GUYS!!
 	 
 	i love my wife
 
 	my skibidi dni ~~ typical dni stuff, dont mess with my alpha friends!! i will bite!!, dont be gross to me im a MINOR!!
 
- PLS CHECK MY STRAWPAGES!! MORE EASIER!!
+ PLS CHECK MY STRAWPAGES!! MORE EASIER!! SAME / MORE INFO ON IT!!
 
 
 <!--
